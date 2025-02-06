@@ -1,4 +1,4 @@
-video explination and walkthrough
+video explanation and walkthrough
 https://youtu.be/JGb8M2a2aPU
 
 
